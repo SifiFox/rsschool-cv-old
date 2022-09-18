@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://sififox.github.io/rsschool-cv/
