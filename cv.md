@@ -26,7 +26,7 @@
  
 ## Education: ##
 ---
-*Now i'am a third year student of BSU Faculty of socialculture communications.(https://fsc.bsu.by/ru/o-kafedre/)*
+*Get high aducation at 2021. Now works at Cenetcurort on Software engeneer vacation *
 
 ## English: ##
 ---
